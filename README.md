@@ -1,2 +1,0 @@
-# SARAVANAN
-MY CV
